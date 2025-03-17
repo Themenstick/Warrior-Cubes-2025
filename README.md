@@ -1,0 +1,2 @@
+Geometric Warriors or Warrior Cubes is a 3D game that will probably be released this year 2025. It is a shooter game where you are based on a cube characters that have to eliminate enemies. Initially the game will probably have 100 levels but in the future it will have 1000 and even more. By reaching higher levels in the future if the game becomes popular, it will give the player the chance to win many rewards and probably real money too.
+
